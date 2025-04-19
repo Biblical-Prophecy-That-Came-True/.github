@@ -1,1 +1,5 @@
-# .github
+# *Biblical Prophecies That Came True and Will Blow Your Mind*
+
+# *Biblical prophecy isn’t just ancient writings—it’s a living testament to God’s character, faithfulness, and love. Each fulfilled prophecy is a mirror of God's unchanging nature. His faithfulness to fulfill His Word proves His trustworthiness. If He kept every promise before, He will surely fulfill what remains. Prophecy reveals not just the future — but the heart of God: holy, just, merciful, and true. These hidden gems of prophecy show that the Bible is more than a book — it’s a living testimony of divine intelligence. Let these fulfilled prophecies ignite your faith, renew your hope, and reveal the glory of God. As we study and meditate on these divine revelations, we’re reminded that no matter what challenges arise, God remains sovereign. Let prophecy inspire you to walk boldly in faith, trusting that His plans are always good.*
+
+[More details…](https://spiritualkhazaana.com/web-stories/biblical-prophecy-living-testament-to-gods-character)
